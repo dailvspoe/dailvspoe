@@ -2,8 +2,8 @@
 
 -- -- --
 About me (つ≧▽≦)つ!!
-
-ESP/ENG, gay/asexual, INFP, Pisces, Atsushi and Ranpo kinnie 
+*My name is Akiro but also you can call me Dai !!
+*ESP/ENG, gay/asexual, INFP, Atsushi and Ranpo kinnie 
 
 
 
