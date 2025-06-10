@@ -3,7 +3,11 @@
 -- -- --
 ***About me (つ≧▽≦)つ!!***
 
-*My name is Akiro but also you can call me Dai !! I can speak english (no very well) but I try, my language is Spanish and **I love Poe**, I love all Poe skin
+*My name is Akiro but also you can call me Dai!! 
+
+*I can speak english (no very well) but I try, my language is Spanish  
+
+* ***I love Poe***, **I love all Poe skin**
 
 
 
