@@ -1,7 +1,8 @@
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1129515821329293474/Black_Cat_in_the_Rue_Morgue.gif?ex=68489b15&is=68474995&hm=82e297056b6c0bc3c97dde8c5ba1d8d25ddf5c83afc4bd563c6fc254c6d20e33&)
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1129478482888507514/78eaf3e5.gif?ex=6848784f&is=684726cf&hm=5bfff7c1257f2d4fddc6d5e5210d9ffd9a6b4341f9dd1335b4befa81f1bb460e&)
 
 -- -- --
-Hi, I´m Akiro/Dai
+About me (つ≧▽≦)つ
+ESP/ENG, gay/asexual, INFP, Pisces, Atsushi and Ranpo kinnie 
 
 
 
