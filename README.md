@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/1ba35da5-264e-46c3-8029-f4a335849ae3)
 
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1129478482888507514/78eaf3e5.gif?ex=685455cf&is=6853044f&hm=e51f04e6bc4e993e66c06974787d2d1df334843128471a98a4f53e6669559533&)
+![IMG_8013](https://i.pinimg.com/736x/46/81/7d/46817dbb409d6cc7233fc64819a237ba.jpg)
 
 ![:3](https://komarev.com/ghpvc/?username=dailvspoe)                     [my card!](https://poefannumber1.carrd.co/)
 ![image](https://github.com/user-attachments/assets/53c4dd7b-f194-417e-9a0b-38b18a9c17e8)
