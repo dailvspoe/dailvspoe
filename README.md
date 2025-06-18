@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/1ba35da5-264e-46c3-8029-f4a335849ae3)
 
-![IMG_8013](https://i.pinimg.com/736x/46/81/7d/46817dbb409d6cc7233fc64819a237ba.jpg)
+![IMG_8013](https://github.com/user-attachments/assets/69bf9cfe-110a-43a2-a069-c3fa62251d2c)
 
 ![:3](https://komarev.com/ghpvc/?username=dailvspoe)                     [my card!](https://poefannumber1.carrd.co/)
 ![image](https://github.com/user-attachments/assets/53c4dd7b-f194-417e-9a0b-38b18a9c17e8)
