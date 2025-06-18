@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/1ba35da5-264e-46c3-8029-f4a335849ae3)
 
-![IMG_8013](https://i.pinimg.com/736x/57/83/9a/57839a0e824b125f7e5d269c6ac6f010.jpg)
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1129478486487212223/tumblr_ohkgy0prlj1vtkkkzo6_250.gif.webp?ex=685455cf&is=6853044f&hm=dd6d3d85cb65f79140009572ea94bfb365badd536b5b730e7f8c31380d2114ce&) ![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1129478487015702558/tumblr_ohkgy0prlj1vtkkkzo4_250.gif.webp?ex=685455d0&is=68530450&hm=fa3e4769c702e4c2ca1a428c2e18a3953fc05f4c15c08f2cb9a9b0b90b6fdc4d&)
 
 ![:3](https://komarev.com/ghpvc/?username=dailvspoe)                     [my card!](https://poefannumber1.carrd.co/)
 ![image](https://github.com/user-attachments/assets/53c4dd7b-f194-417e-9a0b-38b18a9c17e8)
