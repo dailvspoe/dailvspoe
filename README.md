@@ -1,4 +1,4 @@
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1389255013850677379/20220928_165130.jpg?ex=6863f40e&is=6862a28e&hm=13c459057ac5a469d94e06ebad8218a7e4b2b660c2b5dc146294e6850d5bb450&) 
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1389254693280284714/20230202_213127.jpg?ex=6863f3c1&is=6862a241&hm=9a859c9de9f3ca1b4615c7fe8aa243067ea9858d488eeed7f99f50931bb9df6d&) 
 
 ![:3](https://komarev.com/ghpvc/?username=dailvspoe)                                                             ***☾ ⋆･ﾟ:⋆･ﾟ:⠀ ⋆.:･ﾟ .: ⋆*･ﾟ: .⋆***         [my card!](https://poefannumber1.carrd.co/)
 
