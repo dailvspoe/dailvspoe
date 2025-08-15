@@ -1,4 +1,4 @@
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1389255228997767361/20220917_165902.jpg?ex=68975ec1&is=68960d41&hm=b3606bf2548a6a8b8b3c69d433fc85d2f36e09277e1776bcaeb11318a23aac21&) 
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1389254947790651493/tumblr_696f83140cdad8e948a1fa40d2136409_a5609ec5_540.gif?ex=689ff03e&is=689e9ebe&hm=c367663c5b83b644456c6ef04f20338183ef020ff296a0cea761af61bc51385d&) 
 
 ![:3](https://komarev.com/ghpvc/?username=dailvspoe)                                                             ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚***        [MY CARD !](https://poefannumber1.carrd.co/) ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*** ![IMG_8013](https://64.media.tumblr.com/60848f1d4e2ac2fae67e610589aa1f4a/d3d80378d1eb2f37-2c/s250x400/589c7fc96f1f34b82de95eed6f5ac5924f9e92ff.gifv)  ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*** ![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless)
 
