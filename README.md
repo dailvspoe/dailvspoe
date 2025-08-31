@@ -1,4 +1,4 @@
-![IMG_8013](https://static.wikia.nocookie.net/40fd2b84-1812-4c1c-8753-ef448d2bae47/scale-to-width/755) 
+![IMG_8013](https://pa1.aminoapps.com/6430/a1eca6e627acbc8e5a6d9d74066c64a5eff23841_hq.gif) 
 
 ![:3](https://komarev.com/ghpvc/?username=dailvspoe)                                                             ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚***        [MY CARD !](https://poefannumber1.carrd.co/) ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*** ![IMG_8013](https://64.media.tumblr.com/60848f1d4e2ac2fae67e610589aa1f4a/d3d80378d1eb2f37-2c/s250x400/589c7fc96f1f34b82de95eed6f5ac5924f9e92ff.gifv)  ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*** ![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless)
 
