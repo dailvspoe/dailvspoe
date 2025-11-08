@@ -11,7 +11,6 @@
 
 *  ***Poe fan number one real*** and ***I love Poe so much***
 
-![X (formerly Twitter) URL](https://x.com/DailvsPoe)
 
 ***Pony town :3!!***
 * c+h and w2i !!
