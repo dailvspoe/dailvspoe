@@ -10,7 +10,7 @@
 * I like to draw, I upload my drawings to my networks (I don't draw that often)  
 
 *  ***Poe fan number one real*** and ***I love Poe so much***
-![Static Badge](https://img.shields.io/badge/https%3A%2F%2Fwhatsapp.com%2Fchannel%2F0029VbBhuaK8qIzpdihrXu3K)
+
 ***Pony town :3!!***
 * c+h and w2i !!
 * I kiss every skin Poe I see... ***I love all Poe skin*** (If you don't like me kissing you, tell me)
