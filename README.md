@@ -11,7 +11,7 @@
 
 *  ***Poe fan number one real*** and ***I love Poe so much***
 
-![X (formerly Twitter) URL](https://img.shields.io/twitter/url?url=https%3A%2F%2Fx.com%2FDailvsPoe&style=social&logo=x&logoColor=000000&logoSize=auto&label=Twitter&labelColor=5E2020&color=72A8A5&cacheSeconds=3600)
+![X (formerly Twitter) URL](https://img.shields.io/twitter/url?url=https%3A%2F%2Fx.com%2FDailvsPoe&style=social&logo=x&logoColor=000000&logoSize=auto&label=Twitter&labelColor=5E2020&color=72A8A5&cacheSeconds=3600&link=https%3A%2F%2Fx.com%2FDailvsPoe)
 
 ***Pony town :3!!***
 * c+h and w2i !!
