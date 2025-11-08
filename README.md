@@ -11,6 +11,8 @@
 
 *  ***Poe fan number one real*** and ***I love Poe so much***
 
+![X (formerly Twitter) URL](https://img.shields.io/twitter/url?url=https%3A%2F%2Fx.com%2FDailvsPoe&style=social&logo=x&logoColor=000000&logoSize=auto&label=Twitter&labelColor=5E2020&color=72A8A5&cacheSeconds=3600)<a href="(https://x.com/DailvsPoe)"><img img src="[https://img.shields.io/badge/gmail-%23EA4335.svg?style=plastic&logo=gmail&logoColor=white](https://img.shields.io/twitter/url?url=https%3A%2F%2Fx.com%2FDailvsPoe&style=social&logo=x&logoColor=000000&logoSize=auto&label=Twitter&labelColor=5E2020&color=72A8A5&cacheSeconds=3600)" alt="Twitter"/></a>
+
 ***Pony town :3!!***
 * c+h and w2i !!
 * I kiss every skin Poe I see... ***I love all Poe skin*** (If you don't like me kissing you, tell me)
