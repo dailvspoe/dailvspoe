@@ -11,7 +11,8 @@
 * I like to draw, I upload my drawings to my networks (I don't draw that often)  
 
 *  ***Poe fan number one real*** and ***I love Poe so much***
-![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless) :3
+![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless)
+:3
 
 ***Pony town :3!!***
 * c+h and w2i !!
