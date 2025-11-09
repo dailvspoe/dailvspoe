@@ -34,7 +34,7 @@
 
  
 
-***Thank you for taking the time to read.*** ![:3](https://komarev.com/ghpvc/?username=dailvspoe) 
+<h2>Thank you for taking the time to read.</h2> ![:3](https://komarev.com/ghpvc/?username=dailvspoe) 
 
 ![IMG_8013](https://64.media.tumblr.com/f6836338e486b91e22e5b35d07ff5ab9/d2664851b4991359-85/s250x400/4c5c5f52a60a3e6780d8b0aa8a6ed09571988684.gif)
  
