@@ -7,7 +7,7 @@
 
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) My name is Akiro but also you can call me Dai!! 
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I can speak english (no very well) but I try, my language is Spanish
+![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I speak English and a little Russian, my language is Spanish
 
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I like to draw, I upload my drawings to my networks (I don't draw that often)  
 
