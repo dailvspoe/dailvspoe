@@ -3,7 +3,7 @@
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
-***About me (つ≧▽≦)つ!!***
+![IMG_8013](https://mypillowfort.net/media5/tumblr_f59da27a1ed33cf6359c13b8b69504e0_7c31b699_250.gif)
 
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) My name is Akiro but also you can call me Dai!! 
 
