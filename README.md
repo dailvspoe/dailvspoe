@@ -1,7 +1,7 @@
 ![IMG_8013](https://64.media.tumblr.com/299c30d38ec48c7ae1b0dca8821ac029/f55a3e3336a16fd0-d1/s1280x1920/7b4d3fc0bd337339e519c6f12297d6652377302b.pnj)
 ![IMG_8013](https://i.pinimg.com/1200x/9c/29/54/9c2954741c44ca3f31061502c2636179.jpg)
 
-![:3](https://komarev.com/ghpvc/?username=dailvspoe)                                                             ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚***        [MY CARD !](https://poefannumber1.carrd.co/) ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*** ![IMG_8013](https://64.media.tumblr.com/60848f1d4e2ac2fae67e610589aa1f4a/d3d80378d1eb2f37-2c/s250x400/589c7fc96f1f34b82de95eed6f5ac5924f9e92ff.gifv)  ****ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*** ![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless)
+![:3](https://komarev.com/ghpvc/?username=dailvspoe) ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ──── ![IMG_8013](https://64.media.tumblr.com/60848f1d4e2ac2fae67e610589aa1f4a/d3d80378d1eb2f37-2c/s250x400/589c7fc96f1f34b82de95eed6f5ac5924f9e92ff.gifv)  ────୨ৎ──── ![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless)
 
 ***About me (つ≧▽≦)つ!!***
 * My name is Akiro but also you can call me Dai!! 
