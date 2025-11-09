@@ -13,6 +13,8 @@
 
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) You can follow me on my art channels: English and Russian; [Telegram channel](https://t.me/dailvspoeart) or my channel in spanish; [WhstsApp channel](https://whatsapp.com/channel/0029VbBhuaK8qIzpdihrXu3K)
 
+![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I also I made this straw so someone send me drawings or questions or whatever, please make drawings of Poe or Aventurine heheeh.: [StrawPage](https://daiart.straw.page)
+
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif)  ***Poe fan number one real*** and ***I love Poe so much***
 
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) More about me: [My card](https://poefannumber1.carrd.co/#)
