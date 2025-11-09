@@ -1,7 +1,7 @@
 ![IMG_8013](https://64.media.tumblr.com/299c30d38ec48c7ae1b0dca8821ac029/f55a3e3336a16fd0-d1/s1280x1920/7b4d3fc0bd337339e519c6f12297d6652377302b.pnj)
 ![IMG_8013](https://i.pinimg.com/1200x/9c/29/54/9c2954741c44ca3f31061502c2636179.jpg)
 
-![:3](https://komarev.com/ghpvc/?username=dailvspoe) ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ──── ![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless)
+![:3](https://komarev.com/ghpvc/?username=dailvspoe) ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ──── 
 
 ***About me (つ≧▽≦)つ!!***
 * My name is Akiro but also you can call me Dai!! 
@@ -11,7 +11,7 @@
 * I like to draw, I upload my drawings to my networks (I don't draw that often)  
 
 *  ***Poe fan number one real*** and ***I love Poe so much***
-
+![IMG_8013](https://cdn.discordapp.com/emojis/1113873394463690852.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113882855832027237.webp?size=22&quality=lossless) ![IMG_8013](https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless) :3
 
 ***Pony town :3!!***
 * c+h and w2i !!
