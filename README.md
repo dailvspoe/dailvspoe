@@ -1,5 +1,5 @@
 ![IMG_8013](https://64.media.tumblr.com/299c30d38ec48c7ae1b0dca8821ac029/f55a3e3336a16fd0-d1/s1280x1920/7b4d3fc0bd337339e519c6f12297d6652377302b.pnj)
-![IMG_8013](https://i.pinimg.com/1200x/9c/29/54/9c2954741c44ca3f31061502c2636179.jpg)
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486195754124054670/23_sin_titulo_20260324201208.png?ex=69c49f27&is=69c34da7&hm=bedafb43099b2d6c1d31ca4bf28be202cb16c5334ea45b9d92a5fe0f1d98216f&)
 
 
 ![IMG_8013](https://mypillowfort.net/media5/tumblr_f59da27a1ed33cf6359c13b8b69504e0_7c31b699_250.gif)
