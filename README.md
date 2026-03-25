@@ -1,5 +1,5 @@
 ![IMG_8013](https://64.media.tumblr.com/299c30d38ec48c7ae1b0dca8821ac029/f55a3e3336a16fd0-d1/s1280x1920/7b4d3fc0bd337339e519c6f12297d6652377302b.pnj)
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486216083806490664/35_sin_titulo_20260325010816.png?ex=69c4b216&is=69c36096&hm=cccb7afeaa98d93300df7109b67fa729a2695cfe27d64c3595c4738e127a8a8e&)
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486202854816354384/31_sin_titulo_20260325001636.png?ex=69c4a5c4&is=69c35444&hm=1f7d95f0160e0f0eea82932eccd174fa2a505eb78a90b42049505515dcc18cb5&)
 
 ![IMG_8013](https://mypillowfort.net/media5/tumblr_f59da27a1ed33cf6359c13b8b69504e0_7c31b699_250.gif)
 
@@ -18,7 +18,7 @@
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) More about me: [My card](https://poefannumber1.carrd.co/#)
 
 
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486216083496108133/35_sin_titulo_20260325011128.png?ex=69c4b216&is=69c36096&hm=a3401b1cd2097347907e5c396ba6d08d90a1ed3d48b1bf77b7592f67dd733ddd&)
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486202855508676640/30_sin_titulo_20260325001459.png?ex=69c4a5c5&is=69c35445&hm=6798138f9e2bde630f0b86a3451cc41bb1b1f8db7c0a1ac9d590d49d07338281&)
 
 
 <h1>Pony town :3!!</h1>
