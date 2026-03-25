@@ -2,7 +2,7 @@
 
 ![IMG_8013](https://mypillowfort.net/media5/tumblr_f59da27a1ed33cf6359c13b8b69504e0_7c31b699_250.gif)
 
-![IMG_8013](https://files.catbox.moe/fo307k.gif) My name is Akiro but also you can call me Dai!! 
+![IMG_8013](https://files.catbox.moe/fo307k.gif) My name is Akiro but also you can call me Dai, **I am eighteen years old**!! 
 
 ![IMG_8013](https://files.catbox.moe/fo307k.gif) I speak English and a little Russian, my language is Spanish
 
@@ -22,11 +22,11 @@
 
 <h1>Pony town :3!!</h1>
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) c+h and w2i !!
+![IMG_8013](https://files.catbox.moe/fo307k.gif) c+h and w2i !!
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I'm mostly AFK or with friends
+![IMG_8013](https://files.catbox.moe/fo307k.gif) I'm mostly AFK or with friends
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I kiss every skin Poe I see... ***I love all Poe skin*** (If you don't like me kissing you, tell me)
+![IMG_8013](https://files.catbox.moe/fo307k.gif) I kiss every skin Poe I see... ***I love all Poe skin*** (If you don't like me kissing you, tell me)
 
  
 
