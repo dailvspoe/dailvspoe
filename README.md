@@ -2,19 +2,19 @@
 
 ![IMG_8013](https://mypillowfort.net/media5/tumblr_f59da27a1ed33cf6359c13b8b69504e0_7c31b699_250.gif)
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) My name is Akiro but also you can call me Dai!! 
+![IMG_8013](https://files.catbox.moe/fo307k.gif) My name is Akiro but also you can call me Dai!! 
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I speak English and a little Russian, my language is Spanish
+![IMG_8013](https://files.catbox.moe/fo307k.gif) I speak English and a little Russian, my language is Spanish
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I like to draw, I upload my drawings to my networks (I don't draw that often) 
+![IMG_8013](https://files.catbox.moe/fo307k.gif) I like to draw, I upload my drawings to my networks (I don't draw that often) 
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) You can follow me on my art channels: English and Russian; [Telegram channel](https://t.me/dailvspoeart) or my channel in spanish; [WhstsApp channel](https://whatsapp.com/channel/0029VbBhuaK8qIzpdihrXu3K)
+![IMG_8013](https://files.catbox.moe/fo307k.gif) You can follow me on my art channels: English and Russian; [Telegram channel](https://t.me/dailvspoeart) or my channel in spanish; [WhstsApp channel](https://whatsapp.com/channel/0029VbBhuaK8qIzpdihrXu3K)
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) I also I made this straw so someone send me drawings or questions or whatever, please make drawings of Poe or Aventurine heheeh.: [StrawPage](https://daiart.straw.page)
+![IMG_8013](https://files.catbox.moe/fo307k.gif) I also I made this straw so someone send me drawings or questions or whatever, please make drawings of Poe or Aventurine heheeh.: [StrawPage](https://daiart.straw.page)
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif)  ***Poe fan number one real*** and ***I love Poe so much***
+![IMG_8013](https://files.catbox.moe/fo307k.gif)  ***Poe fan number one real*** and ***I love Poe so much***
 
-![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) More about me: [My card](https://poefannumber1.carrd.co/#)
+![IMG_8013](https://files.catbox.moe/fo307k.gif) More about me: [My card](https://poefannumber1.carrd.co/#)
 
 
 ![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486447736055398490/36_sin_titulo_20260325163118.png?ex=69c589d5&is=69c43855&hm=9d3de8816cdb4eba625fd61a18007a0629ed13594348e8de71a08dbe3cebd911&)
