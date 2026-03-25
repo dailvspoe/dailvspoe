@@ -18,7 +18,7 @@
 ![IMG_8013](https://64.media.tumblr.com/3d6bd3fba9c47dc173cd59aaba2a8bd2/823e13c1937a31cf-86/s75x75_c1/22b88cf261d1feaa1ace7c1a618bcf2f82594056.gif) More about me: [My card](https://poefannumber1.carrd.co/#)
 
 
-![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486202857303834744/28_sin_titulo_20260325001009.png?ex=69c4a5c5&is=69c35445&hm=948f2897ad9ced85ffeb520f80aa597e774b605ea4b51da5732de899f15fd2f8&)
+![IMG_8013](https://cdn.discordapp.com/attachments/1101482976258314351/1486202857874001932/27_sin_titulo_20260325000740.png?ex=69c4a5c5&is=69c35445&hm=453c89f3a70e4498e5c4428729223e0da212caf091506134aeb06d9e6686e8b6&)
 
 
 <h1>Pony town :3!!</h1>
